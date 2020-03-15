@@ -29,3 +29,16 @@ Other major companies in this domain would include, JLL, cushman & wakefield, an
 
 ## Recommendations
 
+CBRE is a large company that already uses everything. It stays up to date with all the technology available. 
+
+CBRE has benefit from the use of an array of all the latest technology, such as lots of software for data collection and analysis which has help in finding feasible profitable opportunities. 
+
+The use of software for data collection and analysis has been appropriate becuase it has as a result created and raised profit. 
+
+## WorkCited
+
+https://en.wikipedia.org/wiki/CBRE_Group
+
+https://www.cbre.us/
+
+https://www.google.com/search?q=cbre&oq=cbre&aqs=chrome..69i57j69i60l3j5l3.679j0j7&sourceid=chrome&ie=UTF-8
